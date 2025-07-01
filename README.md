@@ -1,4 +1,4 @@
-"Welcome to this wonderful game created by an absolutely wonderful person");
+Welcome to this wonderful game created by an absolutely wonderful person
 first of all this game is quite random and it is just a mode of venting out stress
 after a long day of work.
 I know how it feels after that long shift so just relax and
